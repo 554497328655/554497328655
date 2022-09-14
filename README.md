@@ -1,0 +1,5 @@
+- 👋 oi, sou a natalia
+- 👀 estou enteressada em aprender
+- 🌱 tenho 18 anos
+- 💞️ gosto de comer
+- moro em maringa
